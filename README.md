@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...Astronomy, Physics and coding
 - 🌱 I’m currently learning ... programming
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ... while learning programming
+- 📫 How to reach me ... 
 - 😄 Pronouns: ... He
 - ⚡ Fun fact: ... I got rejected twice from a same girl
 
